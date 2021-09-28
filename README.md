@@ -1,1 +1,0 @@
-# proyectovt1qb6
